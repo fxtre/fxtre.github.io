@@ -7,5 +7,5 @@ This is my oath to you
 Wherever you go, just always remember
 You never alone, we’re birds of a feather
 And we’ll never change, no matter the weather
-This is my oath to you
+This is my oath to you.
 To my imaginary friend..
